@@ -1,4 +1,3 @@
-![Readme](04.jpg)
 
 # _I'm Adebola Andrew Modongho_ 
 
